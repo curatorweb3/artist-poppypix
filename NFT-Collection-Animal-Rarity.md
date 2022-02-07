@@ -2,8 +2,6 @@
 
 This is work in progress
 
-Total Minted as of 8th February 2022: 
-
 ## Humans
 
 | Human  | # NFT Minted | # NFT Total |
@@ -24,3 +22,6 @@ Total Minted as of 8th February 2022:
 | Pig     | 4            | tbd         |
 | Penguin | 1            | tbd         |
 | Bird    | 1            | tbd         |
+
+
+Total Minted as of 8th February 2022: 22
