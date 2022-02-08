@@ -265,3 +265,76 @@ A collection with diversity and inclusivity in mind.
 Audrey expresses her love for her bird Disa.
 
 [PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
+
+
+------
+# Token 023
+## Poppypix Animal Art Collection
+
+A collection with diversity and inclusivity in mind.
+
+### NFT Token 023: "Jamie with her Bunny #1"
+
+Jamie expresses her love for her bunny Benno.
+
+[PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
+
+------
+# Token 024
+## Poppypix Animal Art Collection
+
+A collection with diversity and inclusivity in mind.
+
+### NFT Token 024: "Jamie  with his Lizard #1"
+
+Jamie expresses his love for his lizard Lizi.
+
+[PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
+
+------
+# Token 025
+## Poppypix Animal Art Collection
+
+A collection with diversity and inclusivity in mind.
+
+### NFT Token 025: "Jamie with his Pig #1"
+
+Janie expresses his love for his pig Piso.
+
+[PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
+
+------
+# Token 026
+## Poppypix Animal Art Collection
+
+A collection with diversity and inclusivity in mind.
+
+### NFT Token 026: "Jamie with his Penguin #1"
+
+Jamie expresses his love for his penguin Pippo.
+
+[PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
+
+------
+# Token 027
+## Poppypix Animal Art Collection
+
+A collection with diversity and inclusivity in mind.
+
+### NFT Token 027: "Jamie with his Bird #1"
+
+Jamie expresses his love for his bird Bleno.
+
+[PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
+
+------
+# Token 028
+## Poppypix Animal Art Collection
+
+A collection with diversity and inclusivity in mind.
+
+### NFT Token 027: "Jamie with his Pug #1"
+
+Jamie expresses his love for his pug Pippa.
+
+[PoppyPix - "Animal Collection" Rarity Calculator](https://poppypix.art/animal-collection.html)
